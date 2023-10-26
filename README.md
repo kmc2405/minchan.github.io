@@ -1,1 +1,0 @@
-# minchan.github.io
